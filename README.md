@@ -4,7 +4,7 @@ The evil corruptor of youth
 I've been editing since I was five months old.
 At that time I made a lot of typos.
 
-Now as I grew old the number of 'em has decreased but the number of changes increased dramatically.
+Now as I grew older the number of 'em has decreased but the number of changes increased dramatically.
 So, over all, the absolute numbers of typos should be constant.
 
 It's even a number you can calculate any time here on earth (mars may be different).
