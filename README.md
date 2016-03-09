@@ -9,7 +9,7 @@ So, over all, the absolute numbers of typos should be constant.
 
 It's even a number you can calculate any time here on earth (mars may be different).
 
-You have to multiply my name with my age divide it by my adress raise it to the power of "e" and substract the heisenberg Konstante.
+You have to multiply my name with my age divide it by my address raise it to the power of "e" and substract the heisenberg Konstante.
 
 After that the zahl der typos might be richtig.
 In the Sinn, dass you can wirklich be sure mit den right numbers umzugehen.
